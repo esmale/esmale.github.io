@@ -1,6 +1,6 @@
 ---
 title: Excited and Terrified for Andor Season 2
-date: 2025-04-07 07:06:00
+date: 2025-04-15 07:06:00
 ---
 
 Potential Trigger Warning: This post is political in nature.  I may be talking about Star Wars a lot, but I'm doing so in light of the current political and social events that I find quite disturbing.
@@ -13,7 +13,7 @@ I enjoyed Ahsoka and Skeleton Crew.  I might be one of the few people that ultim
 
 ![Andor](/assets/images/andor.jpeg)
 
-But right now I think my favorite of the Star Wars TV shows is Andor, and I am so excited for Season 2.  In case you haven't seen it already, we got a good-sized trailer for the second season about a month ago.  You can watch it [here](https://www.youtube.com/watch?v=AE4wxt70aUM). 
+But right now I think my favorite of the Star Wars TV shows is Andor, and I am so excited for Season 2.  In case you haven't seen it already, we got a good-sized trailer for the second season about a month ago.  You can watch it [here](https://www.youtube.com/watch?v=AE4wxt70aUM) or embedded below. 
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/AE4wxt70aUM?si=U_SQEuvkrkAsEamR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
