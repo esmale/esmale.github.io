@@ -41,7 +41,7 @@ While Elon Musk's D.O.G.E. claims to be attempting to root out waste and fraud, 
 
 Mon Mothma's storyline starts with the realization that she is no longer able to access her family money as anonymously as she once was, due to oversight that the Empire is taking over all kinds of financial transactions.
 
-That feels a lot more real, and possible now, in light of President Trump signing an executive order that targets individual private businesses.  Like a like firm that represented Hillary Clinton, his political opponent the first time he ran for President.
+That feels a lot more real, and possible now, in light of President Trump signing an executive order that targets individual private businesses.  Like a law firm that represented Hillary Clinton, his political opponent the first time he ran for President.
 
 So here I am.  Anxiously looking forward to Andor Season 2 because I have un-answered questions.  
 
